@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @n0tj
+- 👀 I’m parking on this account to save my alias (jaysayshello is where I'm at now!)
